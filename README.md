@@ -1,1 +1,1 @@
-[My LinkStack Profile](https://fursona.directory/@Finn)
+[My LinkStack Profile](https://fursona.directory/@finn)
